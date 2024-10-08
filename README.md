@@ -1,6 +1,6 @@
 - 👋 Oi, eu sou Alessandra 054
-- 👀 eu gosto de escrever muito e ler
-- 🌱 gosto de plantas
+- 👀 eu gosto de escrever muito e ler e ser prestativa
+- 🌱 gosto de ajudar no que for preciso 
 - 💞️ e amo colaborar com todos
 - 📫 um prazer conhecê-lo 
 - 😄 pronomes: ela dela
